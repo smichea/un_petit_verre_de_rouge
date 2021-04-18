@@ -1,2 +1,3 @@
-# un_petit_verre_de_rouge
-Reprise des textes de Viktor Sarkis publies sur https://legrosrougequitache.mystrikingly.com
+# un petit verre de rouge
+
+Reprise des textes de Viktor Sarkis publiés sur https://legrosrougequitache.mystrikingly.com
